@@ -1,7 +1,7 @@
 # sched
 my schedule
 
-* [Period 1 English](https://meet.google.com/lookup/g6mniearbd)
+* [Period 1 English](https://meet.google.com/fwz-ycji-bhk?pli=1&authuser=00)
 * [Period 2 TOK](https://pps-net.zoom.us/j/94351970687)
 * [Period 3 HOTA](http://meet.google.com/iiz-ened-sot)
 * [Period 4 Pre Calc](https://pps-net.zoom.us/j/96524684668?pwd=ZnNhbHlCMUZCVEVvWmRnMG1RNFJVUT09)
